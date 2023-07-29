@@ -21,16 +21,7 @@ Ingredientes:
 
 Para la masa:
 
-1. 250 g de harina de trigo
-2. 1 cucharadita de levadura seca instantánea
-3. 1/2 cucharadita de sal
-4. 160 ml de agua tibia
-5. 1 cucharada de aceite de oliva
-
-Para la salsa de tomate:
-
-1. 200 g de tomate triturado o salsa de tomate
-2. 1 diente de ajo picado
+1.fsdhfgbjsdgkdgsdgsd
 3. 1 cucharadita de orégano seco
 4. Sal y pimienta al gusto
 
