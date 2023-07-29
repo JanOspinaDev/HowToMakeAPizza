@@ -7,6 +7,7 @@
 5. poner la pizza en el horno durante 10 minutos
 
 
+
 Tambien podriamos
 1. Hacer mas dinero para tener una mejor pizza
 2. Conseguir mas personas para hacer mas pizzas
@@ -14,3 +15,12 @@ Tambien podriamos
 4. Preparar el horno que compramos en Diunsa
 5. Comprar Platos mejores para poder comer
 6. Servirle primero a las damas 
+
+Tercer paso 
+1. Tambien tener el local        
+2. Conseguir al menos 12 clientes por fin de semana
+3. Buscar decoracion del sitio
+4. Alquilar un vocero 
+5. publicar la ubicacion hora y dia de la desgustacion
+6. Finalizar el dia con buena actitud
+
